@@ -1,0 +1,2 @@
+[[TMZ]]
+[[Tiny’s MegaZine.]]

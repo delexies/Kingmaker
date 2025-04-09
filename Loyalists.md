@@ -1,0 +1,1 @@
+Citizens or subordinates who have a lower chance of being influenced, rebelling, or turning against the country they are a part of.

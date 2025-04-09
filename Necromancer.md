@@ -1,0 +1,1 @@
+Magician that controls [[Undead]]

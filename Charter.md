@@ -1,0 +1,1 @@
+Written decree stating the permissions and support given from a specific person or nation.

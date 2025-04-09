@@ -1,0 +1,1 @@
+Hex's on the map that produce extra resources when the proper facility is built there.
